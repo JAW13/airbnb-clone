@@ -1,2 +1,2 @@
-# Plataforma investigaciones UV
+# Plataforma de turismo aventura Chile
 
